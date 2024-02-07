@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **krishna7@bu.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1O_-v_EFwY7a31AIswG2XQE0xvRG-SQgw/view?usp=sharing](https://drive.google.com/file/d/1O_-v_EFwY7a31AIswG2XQE0xvRG-SQgw/view?usp=sharing)
+- 📄 Know about my experiences [LINK](https://drive.google.com/file/d/1O_-v_EFwY7a31AIswG2XQE0xvRG-SQgw/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
